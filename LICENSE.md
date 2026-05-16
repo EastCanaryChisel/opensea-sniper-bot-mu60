@@ -1,4 +1,4 @@
-# 
+# Enhance your NFT trading with quantitative NFT Bot for opensea sniper bot | bundle-transactions & volume-analysis, the #1 opensea sniper bot. Includes bundle-transactions and
 
 
 
